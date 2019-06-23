@@ -17,6 +17,8 @@ Ngoài ra còn có tệp `vi.txt` là bản dịch tiếng Việt của mình, b
 Từ chương 1 - 3, sử dụng bản dịch của nhóm [Psylocke Scans](https://mangadex.org/group/242/psylocke-scans).
 Từ chương 4 - 26, sử dụng bản dịch của nhóm [B-minus Scans](https://mangadex.org/group/1295/b-minus-scans).
 
+Hãy chọn tệp [read_all_vie.md](read_all_vie.md) để đọc toàn bộ bản dịch của mình.
+
 ## English
 
 This folder contain all translated chapters of _Melancholia_. The name convention of each chapter is shown below:
