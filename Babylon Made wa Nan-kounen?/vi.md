@@ -1,0 +1,2100 @@
+# Chap 1
+
+Ựựaaa...
+Đã đến hành tinh kế tiếp chưa?
+Cố đợi thêm chút nữa đi.
+Có khá nhiều hành tinh trong thiên hà này.
+Ta nên tới đâu bây giờ?
+
+Gái.
+Hành tinh nào có gái ngon là được.
+Kiểm tra cơ sở dữ liệu nào.
+Hành tinh Nelson.
+Dạng sống côn trùng.
+Cá thể cái yêu cực nhanh.
+Và ăn xác cá thể đực sau khi giao phối.
+...
+Đánh dấu lại nó đi.
+Hành tinh soritesies.
+Dạng sống gốc silicon.
+Thoáng với mọi giới tính, khoái khẩu dâm hơn.
+
+Mỗi lần mây mưa kéo dài từ 30 đến 50 ngàn năm.
+Đánh dấu lại đi.
+Hành tinh Bertrand.
+Dạng người.
+Trí tuệ thấp nhưng ham muốn tình dục cao bất thường.
+Đúng rồi!
+Đi thôi!
+Bertrand
+
+Chiều cao trung bình của nữ giới xấp xỉ 1006 mét.
+...
+Có vẻ sẽ tốn 10 phút để lướt từ ngực xuống âm đạo đó.
+
+Hử?
+Này!
+Cô làm gì thế hả?
+Đó là tàu của tôi đấy!
+Ai đánh rơi máy rung này.
+Tuyệt.
+Moá, sướng quá.
+Tàu của tôi!
+Thế nên đừng bao giờ để máy chạy không.
+
+Ai dà, cục súc quá nhỉ?
+Nệm lót ướt sũng rồi.
+Đi đi.
+Tới hành tinh tiếp nào.
+?
+Cậu làm gì thế?
+Kẹt trong lông mu.
+
+# Chap 2
+
+Anh muốn cô gái nào?
+...
+Trên cùng bên phải được không?
+Có ngay.
+Mời đi lối này.
+Thế anh tới từ hành tinh nào?
+Trái Đất.
+
+Hử. Chưa từng nghe qua.
+Uwah!
+Ái chà,
+Anh hết chịu nổi rồi sao?
+Thôi được,
+Mời vào.
+Vào...?
+
+Tôi vào đây.
+Rộng rãi hơn tôi tưởng.
+Miễn phí đồ uống, cứ thoải mái nhé.
+Tử cung của tôi kết nối với một chiều không gian cao hơn.
+Nó cho phép khách hàng của tôi thấy điều họ muốn mà không phải bận tâm về quy luật của không thời gian.
+
+Tôi vừa bị mất trí nhớ thì phải?
+Ô vậy à?
+Sẽ hơi khó chịu đó.
+ái ái ái ái ái ái ái ái!
+...
+đó là...
+trái đất sao...?
+tiến gần hơn nào.
+
+Tôi nhớ... đó là...
+nước Anh!
+Nơi tôi sinh ra.
+Đó...
+Là nơi tôi...
+Đã...
+Đủ rồi đó, anh không chịu thêm nữa được đâu.
+
+Cậu đây rồi.
+Nhanh thế.
+Gái ở hành tinh này thế nào?
+Thực sự không như tôi tưởng.
+nhưng cũng không tồi.
+Ừa, người ta đặt tên cho Sorites là hành tinh thư giãn mà.
+Mọi người thường ghé qua đây sau một chuyến hành trình dài.
+Thế đã sẵn sàng lên đường tiếp chưa?
+Tôi vừa nhớ lại một chút.
+Vậy sao?
+Thế thì cậu phải kể tôi nghe về Trái đất ngay nhá.
+Tất nhiên.
+Ta có khá nhiều thời gian để giết mà.
+
+# Chap 3
+
+Aah...
+Chính chỗ đó.
+Hãy mang con cho tôi.
+Ồ, xin lỗi ngài.
+Ngài không được phép làm điều đó ở đây.
+Hầy...
+Không được rồi...
+
+Không phải mình muốn làm tình...
+Mà cũng chẳng phải mình không muốn...
+Này.
+Anh không phải cư dân thuộc hành tinh này phải chứ?
+Nếu anh là một nhà du hành,
+Liệu có thể cho tôi đi nhờ sang hành tinh kế tiếp không?
+Tôi muốn đi quá giang.
+Tôi sẽ hỏi Hopper.
+Được, tôi không phiền đâu.
+Cám ơn nhiều nhé!
+
+Tôi là Hopper.
+Tôi là Junk Heap.
+Tôi là Karellen.
+Tên anh là gì?
+...
+Bub.
+Ựa...
+Tôi...
+Sẽ quay lại khách sạn đó.
+Anh ấy ổn chứ?
+Cậu ta cứ vậy đó.
+Cậu ta là người sống sót cuối cùng trên Trái Đất.
+Trái đất? Ý cậu là trái đất đó sao?
+
+Tàn tích hành tinh Trái Đất.
+Uồi.
+Tôi đã luôn muốn tới đây trước khi nó bị huỷ diệt.
+Ô!
+Nhặt nó đi!
+Đây.
+Ta vừa khôi phục một báu vật vô giá của Trái Đất.
+...Hẳn đây là ngai vàng nhỉ?
+Ờm...
+
+Quay lại thôi.
+Chui rúc trong tàn tích của một hành tinh chết chẳng hay ho gì cả.
+Cậu nói gì vây?
+Ta đang bảo tồn một nền văn hoá đã chết mà.
+Hử?
+Cái gì thế?
+Nên giờ cậu ta là người trái đất cuối cùng trong vũ trụ này.
+Ồ ra vậy...
+Bảo sao bản năng duy trì nòi giống lại mãnh liệt đến thế.
+
+Chết tiệt. Vẫn không được...
+Sao không ai muốn dâng hiến...
+Anh không cần ai dâng hiến cho mình đâu.
+Oái!
+Tôi dám cá nếu có đủ tiền, sẽ có người chuyên nghiệp đẻ con cho anh.
+Chà...
+Tôi sẽ giúp anh!
+Nếu anh giao hợp với tôi, khả năng năng thụ thai của tôi sẽ là 1 phần 4 tỉ 8.
+Nhưng đó không phải là 0.
+Trong vũ trụ này, miễn không phải là 0 thì đều có thể xảy ra!
+ơ...
+Ừm, dù chỉ mới gặp nhau, nhưng mong ta sẽ xoay xở được!
+Ờ... ờm, tôi cũng vậy.
+
+# Chap 4
+
+Uầy, họ vẫn quện nhau ghê.
+Đừng để lại vệt gì trên nệm nhé hai người.
+Haa...
+Nghỉ thôi...
+Chắc giờ tỉ lệ thụ thai của em cao lắm rồi đó.
+Thật tuyệt khi bay chậm sau một khoảng thời gian.
+À ờm xin lỗi vì điều đó.
+Đây là tàu cổ điển, không lao nhanh hơn được đâu.
+
+Ý tôi không phải vậy, Hopper.
+Con tàu này thật tuyệt.
+Thế cô du hành vì gì thế, Karellen?
+Tôi tình nguyện giúp đỡ xúc tiến nền văn minh trên các hành tinh đang phát triển.
+Ồ, thật tuyệt.
+Em đã từng tới Trái Đất một lần.
+Nói anh nghe
+Về trái đất đi.
+Bub thực sự không nhớ gì về trái đất cả.
+
+Kể cả cái tên "Bub" cũng là từ chiếc áo cậu ta mặc khi bọn tôi tìm thấy.
+Nó ghi là "SpongeBub" theo chữ Trái Đất.
+Vậy chắc cậu ta tên Bub đó.
+Anh đám chắc tên mình không phải Bub.
+Nghe nó cứ sai sai thế nào ấy...
+Chuyến du hành của em từ khá lâu rồi.
+Sự sống lúc đó còn rất sơ khai.
+Em chia sẻ một vài công nghệ và hiểu biết cho một người đàn ông nhiều râu mới gặp.
+
+Em đưa ông ta thiết bị điều khiển trọng lực để đi được trên mặt nước.
+Và bộ chuyển đổi nguyên tử có thể biến nước thành rượu.
+Nhưng các môn đồ của ông ta cứ ném đá vào người em, nên em đã đi khỏi đó.
+Đó là tất cả những gì em nhớ về trái đất.
+Xin lỗi vì không đủ hữu dụng.
+Anh chỉ muốn biết,
+Sao trái đất lại biến mất?
+Sao anh là người duy nhất sống sót?
+Nên là giờ chúng tôi sẽ đi hỏi Akasha.
+Ồ.
+Nơi lưu trữ ghi chép về mọi thứ trên toàn vũ trụ này.
+Chắc các anh sẽ tìm thấy gì đó về Trái Đất.
+
+Nhưng nó ở trung tâm của vũ trụ.
+Liệu con tàu cổ điển này...
+Có đưa các anh đi xa đến thế không?
+Cô vừa gọi đây là đống sắt vụn đấy à?
+Em thực sự muốn bị bỏ lại trên hành tinh xa xăm này sao?
+Ừa.
+Hành tinh xa xăm phù hợp với công việc của em nhất.
+Trông kìa?
+Coi bộ dân trí ở đây không được cao cho lắm!
+Giờ là lúc để tình nguyện viên trổ tài!
+Họ nghe thấy cô nói đấy!
+
+Cám ơn vì đã cho quá giang.
+Em sẽ cầu nguyện các anh bình an.
+Nếu may mắn có con, em sẽ gắng nuôi dậy chúng.
+Cám ơn nhiều.
+Chào nhé.
+Nếu may mắn ta sẽ gặp lại.
+Và gì chỉ còn hội anh em thôi.
+Ừa.
+Tôi đoán...
+Nếu bắt buộc thì đàn ông cũng được...
+Đừng.
+Đường còn dài mà.
+
+# Chap 5
+
+Tôi đói.
+Ừa, cũng thế.
+Ồ.
+Sushi băng chuyền nè.
+Ghé đây thôi.
+Sushi băng chuyền là gì?
+Cá cuộn trên cơm.
+Tôi nghĩ ở Trái Đất cũng có đấy.
+Chào mừng tới nhà hàng Big Crunch Sushi.
+Các anh muốn ngồi ở bàn hay tại quầy ạ?
+Bàn đi.
+
+Cứ lấy bất cứ món gì cậu thích trên băng chuyền nhé.
+Chà.
+Thứ này kéo dài tới đâu thế?
+Băng chuyền dài nhất vũ trụ đấy.
+Tầm khoảng 0.003 parsec.
+Parsec?
+Khoảng 9 te-ra-met.*
+*9 triệu ki-lo-met
+Chịu.
+
+Được rồi,
+Nhìn lên màn hình kia.
+Đó là đầu bếp đang làm Sushi.
+Rồi đặt nó lên băng chuyền.
+Tốc độ của băng chuyền là 4.8 mét trên giây...
+Từ bàn ta tới đó là 3 te-ra-met.
+Nên sẽ mất chừng 1.190.000 năm để cái đĩa đó tới đây.
+Tôi thấy hơi chóng mặt rồi.
+Nói cách khác,
+Món ta đang ăn được làm từ 1.190.000 năm trước.
+Nghe có hấp dẫn như ánh sáng từ các vì sao không?
+Nó còn ăn được không thế...?
+
+Những chiếc lồng này được làm vì mục đích đố đấy.
+Làm riêng!
+Bưc xạ vũ trụ
+Lực hâp dẫn
+Nơ-tri-nô
+Chúng giữ miếng sushi an toàn khỏi mọi thứ.
+Vậy ra đây là Sushi...
+Có cảm giác tôi từng ăn món tương tự ở Trái Đất...
+
+Tôi rút lại lời nói!
+Tôi chưa từng ăn thứ gì giống thế này!
+Mmm, ngon tuyệt!
+Các cậu còn ăn được gì nữa không?
+Chắc từng đó năm làm sushi nguội lạnh rồi.
+Thế còn đậy lồng làm gì nữa?
+Tôi nghĩ người Trái Đất không hạp món này.
+À mà,
+Đầu bếp ơi.
+Cho bọn tôi vài đĩa tại bàn luôn được không?
+Vâng, có ngay đây ạ!
+Sao cậu không làm thế từ đầu đi?
+
+Ờm, cậu ta cũng đúng đó.
+Thực ra băng chuyền chả có nghĩa lý gì cả.
+Cậu không ngộ ra được rồi, Junk.
+Món ăn này đã du hành qua mọi vùng trong vũ trụ.
+Để cuối cùng nằm gọn trong dạ dày của chúng ta.
+Miếng sushi này cũng là nhà du hành như ta.
+Đôi lúc cậu sâu sắc ra phết đó Hopper.
+Của anh đây.
+Được rồi, đã đến lúc...
+Vậy ra đây là Sushi...
+Chà, tôi đoán người trái đất thực sự không hạp món này chút nào.
+người trái đất mệt ghê.
+
+# Chap 6
+
+Oái!
+Anh đâm vào ai rồi kìa, Junk!
+Học cách lái đi chứ, chết tiệt!
+Ơ hay, có phải lỗi tôi đâu...
+Là họ chứ.
+Ai lại lái một con tàu đen sì giữa không gian thế này?
+
+Ối,
+Toi rồi.
+Oài!
+Là Dogoque!
+Mấy quý cô đây định bồi thường thiệt hại như nào?
+Hay thôi về văn phòng anh em thảo luận đê.
+Toang...
+
+Dogoque 893
+Thế,
+Các thím không định bồi thường à?
+5 triệu đô-la vũ trụ...
+Móc đâu ra.
+Thế thì trả bằng thân thể.
+Hai đứa mày đi cuốc trong mỏ Galtite đi.
+
+Còn thằng đẹp da làm trong nhà tắm.
+Ối.
+Lẹ thật, từ người mua sang kẻ bán trong chốc lát.
+Ô, người mới à?
+Thân thể ngài đẹp thật.
+Ừa.
+Còn mặt em thì dễ thương vô cùng.
+Aah! Lần đầu! Lần đầu!
+
+Bọn mày được tha.
+Tôi kiếm đủ để trả họ rồi, ta đi thôi.
+Cậu kiếm được 5 triệu rồi á?
+Thật sao?
+Quay lại lúc nào cũng dược.
+Bọn anh sẽ đợi.
+Chà, họ yêu cậu luôn.
+
+Oải thật đấy.
+Ừa.
+...
+Này.
+Đồng ý với bọn tôi chứ?
+Ừa?
+...lại nữa à Junk!?
+Lượn lẹ thôi má.
+
+# Chap 7
+
+Giờ mới nghĩ lại hồi ở Dogoque.
+Cậu đâu cần phải làm đàn ông nữa, Bub nhỉ?
+Ừm, mà sao thế?
+Kể từ khi bọn tôi cứu cậu, cậu đã trải tinh dịch khắp nơi đó.
+Nhưng có đi đến đâu đâu.
+Nếu giờ cậu là đàn bà, cậu có thể có con và nuôi dưỡng chúng ngay bên mình.
+Ừa nhỉ?
+Nhưng làm sao để thành đàn bà?
+Dễ ợt,
+Trông Junk thế thôi nhưng cậu ta là bác sĩ đó.
+Phẫu thuật chuyển giới siêu dễ luôn.
+
+Tôi tưởng cậu là người máy lái phi thuyền.
+Không!
+Hopper bắt tôi lái vì cậu ta không có bằng.
+Và tôi không phải người máy.
+Tôi là dạng sống cơ khí.
+Cơ mà nghĩ sao thì...
+Phẫu thuật sẽ là kiểu...
+Tôi phải cắt bỏ dương vật của mình nhỉ?
+Yên tâm,
+Tôi sẽ dùng máy nano để viết lại cơ thể cậu.
+Chả tốn tới 10 phút đâu.
+Được rồi, vào việc thôi.
+Này,
+Nếu đã đơn giản thế rồi sao còn lôi thứ đó ra làm gì?
+
+Bắt đầu phẫu thuật.
+Gyaahh!
+Phải tôi không?
+Cậu thích chứ?
+Được rồi, kiếm vài chàng trai cho cậu nào.
+
+Anh gì ơi,
+Có muốn... vui vẻ cùng em không?
+Chơi.
+Được, kiếm khách sạn thôi.
+Không đời nào!
+Sao tôi nhồi được 7 cái cùng lúc chứ?
+Trong này viết là khi tới tuổi trưởng thành, cư dân hành tinh Dique mọc thêm dương vật.
+
+Thằng bé đó được phết chứ?
+Triển thôi.
+Nhóc muốn chơi với chị không?
+Có ạ.
+Mình chơi gì đấy?
+Chơi trò
+Tụt quần nhau đi?!
+Dzê!
+Chị lột hết đồ của nhóc thì tắm cùng nhau nhé?
+
+Không được!
+Tôi không làm được!
+Tôi không thể làm việc trái đạo đức thế này.
+Thôi nào, chỉ có trái đất mới thế thôi.
+Trên hành tinh này làm gì có cấm đâu.
+Hành tinh thì không nhưng tôi thì có.
+Này gái,
+Vui vẻ với chị không?
+Cũng được đấy chứ.
+Nhưng có vẻ chả giải quyết được vấn đề gì?
+
+# Chap 8
+
+Ư ư...
+Mmm...?
+Ơ... tôi là trai rồi à?
+Có vẻ máy nano không chạy ổn lắm.
+Cứ chờ xem.
+Hử?
+Ta dừng lại à?
+Ừa, động cơ có chút vấn đề.
+
+Hopper đang kiểm tra nó.
+Tôi chẳng thấy ngôi sao noào cả.
+Ta đang ở khoảng không.
+Không có hành tinh hay dạng sống nào quanh đây cả.
+Cũng không gọi được tàu kéo từ đây.
+Trường hợp tệ nhất là cậu sẽ chết đói.
+Sao chỉ có mình tôi?
+Tôi chỉ cần một xíu dầu.
+Còn Hopper là một dạng sống thượng đẳng, nên bọn tôi có thể sống vài nghìn năm trong vũ trụ mà không cần đồ ăn thức uống.
+
+Chà, cậu ta ghê thật đấy.
+Chắc mình nên đi xme thử.
+A, cậu đây rồi.
+Tệ rồi.
+Nó quá hẹp cho tôi.
+Nếu cậu chịu thì còn ai chui lọt nữa.
+Khoan, cậu trở lại bình thường rồi à?
+Ừa, máy nano hình như có vấn đề.
+
+Phải rồi!
+Cậu có máy nano trong cơ thể đúng không?
+Ừa.
+Nếu có chuyện gì xảy đến với cậu.
+Những cỗ máy đó sẽ phản ứng và giữ cậu sống.
+Ừa.
+Nên nếu tôi cắt đầu cậu ra.
+Ừa?
+Cậu nghiêm túc đấy à?
+
+Yên tâm.
+Có máy nano lo rồi.
+Ồ đúng thật.
+Nhưng cơ thể cậu chắc sẽ oẳng nếu thiếu não.
+Ôi thôi nào!
+Giờ chỉ cần cậu hoàn thành trước khi cơ thể chết.
+Ừa ừa.
+Nếu cơ thể chết thì mình sẽ thê này suốt đời.
+Chẳng tự nhận mình là người trái đất được nữa.
+Hử?
+
+Là pin sao?
+Chắc bị tụt ra do va đập.
+Ồ,
+Động cơ hoạt động rồi.
+Cơ thể tôi sao rồi?
+Vừa kịp lúc.
+Phù, may thật.
+Chưa chắc.
+Tôi nghĩ đầu cậu bị lộn hướng rồi.
+Bộ cậu không thể tập trung làm gì được sao?
+
+# Chap 9
+
+Bia trên hành tinh này ngon lắm.
+Ỏ?
+Nghe hay đấy.
+Uống vài vại thôi.
+Chúc sức khoẻ!
+Haah, tôi say rồi.
+
+Tôi không lái được nữa đâu.
+Hay để tôi lái đi.
+Cậu chắc chứ?
+Đừng làm hỏng nó đáy.
+Ga, phanh.
+Cái nào kia?
+Côn.
+Cậu chắc sẽ ổn chứ...?
+
+Cảnh sát vũ trụ đây.
+Lái xe khi say xỉn, và không có bằng.
+Cậu sẽ phải vào tù.
+Đây là hành tinh tù.
+
+Bọn tôi sẽ tới đón cậu trong 3 tiếng nữa.
+Hử? Mỗi 3 tiếng thôi sao?
+Chắc mình sẽ dạo lượn trên hành tinh này.
+n...
+nặng quá...
+không di chuyển nổi...
+chà...
+chỉ 3 tiếng thôi mà...
+
+Chắc hành tinh này phải quay nhanh lắm.
+Trọng lực ở đây thật điên rồ.
+!
+Họ quay lại rồi.
+
+Chào mọi người...
+Tuyệt, cậu làm được rồi.
+Cũng đã lâu rồi.
+Mãi mới được gặp lại.
+?
+Các cậu nói gì vậy?
+Trọng lực khiến thời gian ở đây trôi nhan hơn.
+Cậu đã ở trên hành tinh đó 10 năm rồi.
+Khoan...
+Thế giờ tôi đã ngoài 30 rồi á?
+À mà,
+Đây là bánh sinh nhật 10 năm.
+
+# Chap 10
+
+Cuối cùng ta cũng tới,
+Akasha.
+Cả hành tinh này
+Được thiết kế để lưu trữ lịch sử của toàn thể vũ trụ.
+Hử?
+Chào mừng
+Đây là lần đầu các anh tới đây à?
+Tôi có thẻ thành viên.
+Loại bóng đêm.
+Có một quầy đồ uống trong kia.
+Cứ tự nhiên nhé.
+Cậu có thể ăn bao nhiêu kem tuỳ thích.
+Cậu từng tới đây à Hopper?
+
+Tôi chưa từng tới thư viện chính này bao giờ,
+Nhưng từng ghé qua vài chỗ thuộc 84.000 nhánh của nó.
+Thé sao phải tới tận trung tâm vũ trụ làm gì?
+Đây là thư viện rộng lớn nhất trong chuỗi,
+Và tôi cũng muốn tận mắt thấy nơi này.
+Chắc họ sẽ có ghi chép về Trái Đất ở đây.
+Ồ, và họ ghi chép lại...
+Bằng manga à?
+Họ lưu trữ bằng truyện tranh.
+Vì đó là hình thức đơn giản nhất để mọi dạng sống hiểu được.
+
+Bọn tôi kiếm phòng đọc đây,
+Cậu đi tìm ghi chép về Trái Đất đi nhé.
+Ừa.
+Ái chà,
+Sẽ mệt lắm đây.
+Anh đang tìm gì đó?
+A cô thủ thư ban nãy.
+Tôi là Akashiya.
+Liệu tôi có thể giúp gì cho anh?
+Tôi đang tìm các ghi chép về trái đất.
+trái đất... ở...
+Cuối khu 6.
+Ta sẽ tới đó qua xe buýt.
+Tôi sẽ dẫn đường.
+
+Biến cả hành tinh thành thư viện chắc khó khăn lắm nhỉ?
+Ừm, dù đã có một kho tàng đồ sộ thế này,
+Chúng tôi vẫn đang sản xuất thêm với tốc độ thần sầu.
+Ai vẽ chúng thế?
+Hãy hướng mắt về căn hộ đó.
+Nó là nơi trú ngụ của 80 triệu hoạ sĩ truyện tranh.
+Tất cả đều đang cật lực vẽ những trang truyện mới.
+Đến hạn rồi.
+Làm ơn hoàn thành 600 trang trong 40 giây còn lại.
+Xong rồi đây.
+
+Nghe có vẻ gian nan phết.
+Ta tới rồi.
+Đây là góc của trái đất.
+Chúng tôi lưu trữ toàn bộ lịch sử của trái đất,
+Trong tổng cộng 630 quyển.
+Sao tôi đọc được hết đống đó chứ!
+Để bắt đầu,
+Tôi đã mượn vài tập gần nhất.
+Chào cậu.
+Mong cậu sẽ nhớ ra gì đó.
+Ừa.
+
+...À,
+Tôi nhớ ra rồi.
+Tôi đang...
+
+# Chap 11
+
+Uồi, vậy ra đây là Akihabara.
+Mình đã luôn mong ước được tới Nhật Bản.
+Đây là chuyến du lịch mà Mình hằng ao ước.
+Tuyệt.
+Có cả đống truyện tranh và đồ chơi không bán ở nước Anh.
+Vậy đây là sushi băng chuyền.
+Mình đã luôn muốn nếm thử.
+
+Mình sẽ tới Ikebukuro.
+RỒi Noborito.
+Tachikawa hơi xa thì phải?
+Ài, vui thật.
+Mai nên đi đâu đây.
+Hừ.
+Hử?
+Mất rồi!
+Mất ví rồi!
+
+Mình nên làm gì bây giờ?
+Một mình ở nước ngoài khó hơn mình tưởng.
+Sao vậy?
+Cần giúp gì không?
+Ra vậy.
+Hãy đi trình báo cảnh sát đã.
+Nếu anh gặp may thì ắt có người nhặt được và nộp cho cảnh sát rồi.
+Ừm.
+Anh tới từ đâu?
+Minehead, nước Anh.
+nước Anh à?
+Tôi từng tới đó đợt tốt nghiệp.
+London, Manchester, Liverpool.
+Đó là một quốc gia tốt.
+
+Cám ơn nhiều.
+Có chỗ nào nghỉ qua đêm chưa?
+...
+Tôi có thể cho anh vay chút tiền để thuê phòng khách sạn chả hạn.
+Không!
+Đừng!
+Ta chỉ vừa mới gặp nhau thôi, tôi không muốn phiền cô nhiều thế.
+Đừng lo, tôi ngủ bụi ngủ bờ cũng được mà.
+Tôi quen du hí kiểu này rồi.
+Không cần lo cho tôi nhiều vậy đâu.
+Thôi được.
+Coi nào,
+
+Đi uống đi.
+Nếu anh không muốn tôi trả tiền phòng, thì hãy để tôi mời một chầu.
+Ta sẽ uống tới sáng.
+Và bàn xem làm gì tiếp sau đó.
+...Chắc chắn rồi.
+Quẩy nào.
+...
+Ớ tỉnh rồi à?
+Cậu đã bất tỉnh 2 ngày liền
+Trong lúc đọc truyện đó.
+
+Chắc do ký ức quay lại quá đột ngột.
+Cậu nhớ lại hết rồi sao Bub?
+Không hẳn quan trọng lắm,
+Tôi vẫn chưa biết tại sao Trái đất huỷ diệt,
+Cơ mà tôi nhớ ra một điều.
+Tên tôi không phải là Bub!
+Tôi là Daniel!
+Bub là nhân vật hoạt hình trên áo phông của tôi!
+Biết là thế,
+Cơ mà bọn tôi quen gọi cậu là Bub rồi.
+Sau khi nhớ ra mọi chuyện thì...
+Để mọi người gọi tên mình bằng nhân vật hoạt hình thế này xấu hổ chết mất.
+
+# Chap 12
+
+Giờ sao?
+Ta hết chỗ để tới rồi.
+...
+Babylon.
+Hử?
+Có gì đó thôi thúc tôi tới một nơi tên là Babylon.
+Dù chẳng biết nó ở đâu nữa.
+Chỉ thế thôi sao?
+Có vẻ ký ức của cậu vẫn chưa hồi phục hẳn.
+Chắc ta phải nhờ 
+Người bốn chiều giúp thôi.
+
+Người bốn chiều?
+Nghe như lừa đảo ý.
+Thô lỗ thế.
+Ngài rất quyền năng.
+Là sinh vật được tôn kính nhất trong vũ trụ.
+Ngài là người duy nhất trong vũ trụ vượt lên trên thời gian,
+Ngài có khả năng di chuyển thoải mái từ điểm bắt đầu tới điểm kết thúc của thời gian.
+Nghe như chúa ấy.
+Chí ít cũng gần như vậy.
+Lý do ta có thể vui vẻ du hành trong không gian như này
+Đều là nhờ ngài ấy cả đấy.
+Khoảng 5 tỉ năm trước,
+Một nhà thám hiểm đã lên đường tới rìa vũ trụ.
+
+Nhà thám hiểm đó là người đầu tiên liên lạc với người bốn chiều.
+Khi đang ở trên một hành tinh không người.
+Người bốn chiều nói rằng,
+Với trang bị của ngươi mà du hành xa thế này hẳn phải vất vả lắm.
+Ta sẽ cho ngươi mượn đồ của ta.
+Người bốn chiều trao cho nhà thám hiểu của chúng ta:
+Pin vô cực,
+Động cơ bức xạ ánh sáng,
+Và bản đồ toàn vũ trụ.
+Với những trang bị mới này,
+nhà thám hiểm đi tới mọi ngóc ngách trong vũ trụ.
+Du hành vũ trụ sau đó bùng nổ luôn.
+Hừm,
+
+Tôi cá người bốn chiều biết trái đất.
+Cậu chỉ việc nhờ ngài cho xem lúc trái đất bị huỷ diệt thôi.
+Tôi hiểu rồi.
+Không có manh mối nào về ngài.
+Sao ta kiếm được ngài bây giờ?
+Tôi có ý này.
+Ở Trái đất có một trò tên là "6 cấp độ của Kevin Bacon".
+"Kevin Bacon"?
+Ông ấy là một trong những diễn viên tài ba nhất Trái Đất.
+Nổi tiếng với phim Tremors.
+
+Đây là cách chơi nè,
+Để gặp được Kevin Bacon,
+Biết Bacon không?
+Không?
+Cậu hãy hỏi người gần nhất cạnh mình mà có vẻ như quen Bacon.
+Nếu người đó không quen,
+Biết không?
+Không.
+Hãy hỏi người tiếp theo gần người đó mà có vẻ quen Bacon.
+Cứ tiếp tục như thế
+Và cậu sẽ có thể gặp được ông ta sau 6 kết nối.
+Hử?
+Vũ trụ này rộng lớn lắm, nên chắc ta sẽ cần hơn 6 kết nối,
+Cơ mà chắc chắn ta sẽ tới gần hơn với người bốn chiều theo cách đó.
+Uầy, gã Bacon này đỉnh thật.
+
+Vấn đề là ta sẽ phải bắt đầu từ đâu đây?
+Tôi biết một chỗ khá phù hợp đấy.
+Hành tinh Smithanniso.
+Thư viện lớn nhất trong vũ trụ dành riêng cho người bốn chiều.
+Chào mừng.
+Chào mừng.
+Chúng tôi vừa bổ sung áo phông bốn chiều.
+Mời quý khách thử ăn khoai chiên bốn chiều.
+Mau kiếm ngay nam châm bốn chiều nào.
+Trông chẳng liên quan gì cả.
+
+# Chap 13
+
+Đây là dạng phổ biến nhất của ngài.
+Không ai biết chính xác giới tính của ngài và nghe nói bạn có thể đếm bằng một bàn tay tổng số người từng thấy ngài sau áo choàng.
+Nhiều phết đấy chứ, tôi có một đống ngón tay này.
+Kế đến là những vật dụng cá nhân của ngài.
+Đây là chiếc bàn chải mà người ta tin rằng người bốn chiều đã dùng.
+Đây là mảnh giấy vệ sinh mà người ta tin rằng đã lau đít người ngài.
+Bộ không có gì đặc biệt sao?
+Nhàm quá.
+Xin thứ lỗi,
+Tôi muốn hỏi một câu.
+Gì vậy?
+Làm sao ta tìm được ngài?
+Tôi chỉ có thể nói rằng ngài tồn tại ở bất cứ đâu và ở bất cứ thời điểm nào trong vũ trụ này.
+Khả năng để anh gặp trực tiếp ngài là vô cùng nhỏ.
+Nhưng không phải bất khả thi đâu.
+Tôi hiểu.
+Vói hiểu biết của tôi, người đứng cạnh bạn lúc này có thể chính là người bốn chiều đó.
+Cô ta thuộc làu cả câu trả lời luôn?
+Chắc là thắc mắc của chung.
+Ừa, hỏi người dẫn đoàn cũng bằng mo.
+Ta nên tìm người nào đó có vẻ thân thiết với ngài hơn.
+
+A!
+Đã bao lâu rồi!
+Karellen?
+Trông anh khác xa những gì em còn nhớ.
+Ừa có vài chuyện xảy ra.
+Em đang đi tìm anh đó.
+Tìm anh sao?
+Lại đây.
+Akka.
+Vita.
+
+ư...
+chúng nó...
+Đúng, là con anh đấy.
+Thật sao!?
+Em bảo rồi còn gì?
+Không hoàn toàn bất khả thi tẹo nào.
+Nhưng,
+Sao chúng nó đã lớn thế này rồi.
+
+Cậu quên là
+Vừa rúc khám 10 năm à?
+À!
+Có chuyện gì vậy?
+Không có gì.
+Akka, Vita.
+Bố, là bố đây...
+Thử tưởng tượng xem..
+Nếu tự dưng có một cô gái lạ hoắc nhận là bố cậu thì sao?
+Chết tiệt, sao lại chuyển giới vào hôm nay cơ chứ?
+Chà.
+
+Mẹ luôn nhắc về bố các con đấy, nhớ không?
+Bố các con là người trái đất ý.
+Ờm, giờ hơi đột ngột với hai đứa nó.
+Chúng cần thời gian để thích nghi.
+Cơ mà để phục hồi được trái đất,
+Ta không cần phải tìm
+Người bốn chiều nữa sao?
+Các anh đang tìm ngài ấy à?
+Ừa.
+Em biết ngài đó.
+Hả...
+Kevin Bacon!
+Hử?
+Sao cơ?
+
+# Chap 4
+
+Em từng kể rằng em là tình nguyện viên, đúng không?
+Chà, tổ chức của em được tài trợ bởi người bốn chiều.
+Hừm.
+Em chỉ mới gặp ngài hai tới ba lần thôi,
+Nhưng em sẽ thử liên lạc với ngài.
+Nhờ em cả.
+...Không ngờ anh có thể uống thứ đó.
+Hử?
+Cái này á?
+
+Ngon mà, khá giống với cà phê trái đất.
+Chờ tới khi anh nghe nguồn gốc của nó nha.
+Tất cả bắt đầu từ Jacolanen, một loài động vật tại đây,
+Nó ăn hạt cà phê trồng tại một hành tinh nhiệt đới.
+Rồi, Mestilus sẽ ăn thịt Jacolanen.
+Tiếp tới, Gapley ăn Mestilus.
+Sau đó, Meserabasara ăn Gapley.
+Sau cùng, người ta gạn những hạt chưa bị tiêu hoá khỏi phân của Meserabasara, và rang chúng lên. Đó chính là thứ anh đang uống.
+Giờ thấy thế nào?
+Ở trái đất bọn anh cũng có loại tương tự.
+
+Thật sao?
+Người trái đất thật điên rồ!
+Mà này hai đứa.
+Bánh dính hết lên mặt các con rồi kìa.
+Mẹ ơi, con cũng thế.
+
+Anh biết đấy,
+Bọn trẻ đang bị rối loạn tinh thần.
+À...
+Đấy là lý do tại sao hai đứa nó chỉ giao tiếp với mình em.
+Bọn nó trầm tĩnh không phải vì ghét anh đâu.
+...
+Cảm ơn em vì tất cả,
+Kể từ giờ anh sẽ cố hết sức.
+Trước hết,
+Anh sẽ khiến chúng rộng lòng.
+
+Cái...
+...Không.
+
+Karellen?!
+aah... tại sao...?
+tại sao lại thành ra thế này?
+...
+hãy chăm sóc...
+con của chúng ta...
+anh-
+anh hứa...
+
+# Chap 15
+
+Mịa nó,
+Bọn trẻ chả nói năng gì cả.
+Ừa thì,
+Chứng kiến trực tiếp thế thì biết làm gì.
+Thế giờ sao?
+Đi đâu đây?
+Sở thú!
+Đó là nơi ổn nhất cho bọn trẻ.
+Làm ơn đưa bọn tôi tới sở thú nào đấy đi.
+
+Được rồi.
+Để đó cho tôi!
+Hành tinh Nouezoo
+Coi nè các con!
+Đây là sở thú!
+Đây không hẳn là sở thú đâu.
+Xin lỗi,
+Chỉ có mỗi hành tinh này có thú để coi thôi.
+
+Người ta tập hợp các loài thú đang bị đe doạ trên toàn vũ trụ,
+Để giao phối và sinh sản.
+Agh!
+Đừng nhìn!
+...
+Bọn con ổn.
+Bọn con biết tình dục rồi...
+...
+Mé, trẻ con ngoài không gian trưởng thành nhanh thật.
+Nhắc mớ nhớ,
+Cậu không còn hứng tình nữa nhỉ?
+Ừa, tôi chịu đủ rồi.
+Vả lại,
+Tôi cảm thấy không muốn nữa mỗi khi nhìn vào chúng.
+
+Vậy là bản năng làm cha của cậu đã thức tỉnh.
+Kể từ giờ,
+Nghĩa vụ của cậu là kiếm ăn và bảo vệ cho chúng.
+Oái!
+Không được!
+Hai đứa quả nhỏ để coi chơi ba!
+Coi kìa, giờ Bub của chúng ta thành bố rồi.
+
+Đừng gọi tôi là Bub nữa,
+Tôi là Daniel...
+...
+Sao thế?
+Tôi vừa nhận ra.
+Tôi chưa từng nói cho Karellen tên thật của mình.
+Cô ấy chưa bao giờ biết
+Tên tôi...
+ư ư
+
+Nhìn lại thì cũng buồn thật.
+Ừa, chắc cậu ta sẽ chẳng thể nào...
+Làm một ông bố mẫu mực được.
+Bọn trẻ đâu rồi?
+Trong phòng động cơ, tôi vừa biến nó phòng ngủ tạm thời cho bọn nó.
+Akka.
+Sao?
+Cậu thấy bố thế nào?
+Đáng thương.
+Nhưng không phải người xấu,
+Ừa...
+
+# Chap 16
+
+Oái, có chuyện gì vậy?
+Thôi xong,
+Tôi lái quá gần một hành tinh du lịch bắt buộc.
+Cho tôi xin đi!
+Gì vậy?
+Hành tinh được hỗ trợ bỏi hiệp hội du lịch vũ trụ.
+Họ đặt ra chính sách này để giúp các hành tinh có ít hoặc không có lượng khách du lịch nào.
+Những ai nằm trong trọng lực của hành tinh được chọn sẽ bị ép phải hạ cánh và du lịch tại đó.
+Argh.
+Mệt mỏi ghê.
+Ừa thì cũng đâu có sao?
+Chỉ thăm thú tí thôi mà.
+Chắc bọn trẻ cũng khoái ngay.
+
+Hành tinh Cromi
+Tôi chả thấy gfi cả.
+Thăm thú từ đâu bây giờ?
+À ngay kia kìa.
+Nhìn kĩ xuống mặt đất xem.
+Ừ hứ?
+Người Cromi nhỏ hơn
+Khoảng 300 lần so với chúng ta.
+Và bật mí thêm,
+Ta vừa đè nát 6.000 người Cromi đó.
+Hựa.
+
+Vì lợi ích của khách du lịch,
+Người dân ở đây sẵn sàng hi sinh mạng sống.
+Híc!
+Hai đứa ở yên đây nhé.
+Đừng rời khỏi tàu đấy.
+Thế?
+Làm sao ta thoát khỏi hành tinh khổ sở này đây?
+Cậu cần có tem.
+Chuyến du lịch được xem là kết thúc khi cậu lấp đầy chiếc thẻ dán tem này.
+Làm thế quái nào tôi dán được tem lên đây chứ?
+Cứ để đống 
+máy nano Của tôi lo.
+ta nên đi thôi.
+
+Đến mốc đầu tiên!
+...
+Hử?
+Sao nó thế này?
+Ngay lúc này, có khoảng 10.000 Dân cư Cromi 
+đang chui tọt vào dạ dày của cậu
+Chết tiệt!
+Đây là đặc sản của hành tinh này.
+Người Cromi sống.
+Ép buộc ta nuốt họ cho tới khi nôn mửa là cách họ chào đón ta.
+Huệ-
+
+Đây là mốc đầu.
+Cậu lên cân đấy à?
+Có vẻ đám Cromi này
+Chiếm nhiều Ca-lo đây.
+Ta sẽ tới điểm kế.
+À.
+Sao?
+Không có gì.
+Thôi nào.
+Nói luôn đi.
+
+...bub,
+Cậu vừa
+Dẫm lên một nhà trẻ.
+Cho tôi thoát khỏi đây đi!
+C-
+Cuối cùng.
+Ta cũng có đủ số tem.
+Phắn khỏi hành tinh này thôi.
+Đồng ý.
+Chào bố...
+
+# Chap 17
+
+Cái? Cái quái gì thế?!
+Chắc hẳn ta dính thiên thạch rồi.
+Hú hoà!
+Đòi tiền bảo hiểm thôi.
+Chết tiệt.
+Động cơ không nổ.
+Ta lại gặp rắc rối rồi sao?
+
+Tôi vừa gọi cho trung tâm chăm sóc,
+Nhưng chắc sẽ mất ít nhiều thời gian để họ tới đây.
+Thế giờ ta bị kẹt ở đây rồi.
+Tôi sẽ coi thử xem có sửa được không.
+Tôi sẽ đi cùng.
+Tuyệt quá...
+Ừa.
+Cả tôi nữa!
+
+hư-
+Ngốc ghê.
+Choàng mũ lên nào.
+Hử, vậy ra đây là đồ không gian à?
+Cái lỗ to quá.
+Ta không thể sửa nó bằng công cụ của mình được.
+Chắc chỉ kịp sửa khẩn cấp thôi.
+
+Mình từng thấy người khác ra ngoài khoảng không,
+Nhưng với mình đây mới là lần đầu.
+Với cả,
+Không phải đáng ra
+Mình phải gắn với dây đính trên tàu chứ nhỉ?
+Khá là chắc kèo mình đang bị trôi đi.
+Chẳng còn gì gần mình nữa rồi.
+Ối mẹ ơi!
+Mịa, mình không tiến lên được!
+Bộ đồ này không có radio sao?
+Hopper!
+Junk!
+
+Có ai không!
+Cứu với!
+...
+Chết.
+Mình phải đi tè.
+Nếu mình không sai,
+Đồ không gian thường tự thẩm thấu nước tiểu thành nước uống được.
+Cái quái?! Nó đang rỉ ra!!
+Và thấm ngược thẳng vào mũ bảo hộ luôn!
+ục ục~
+Thực tình mình nên chết quách đi cho xong.
+Mình đang trôi lững lờ giữa không gian trong chính nước tiểu của mình.
+Thà thành hạt bụi còn hơn uống lại chúng...
+
+Đừng đùa tôi chứ.
+Thực tình, cậu là người thừa kế của tôi.
+Tôi để cậu sống vì định dùng cậu sau này.
+Chớ có chết ở giữa khoảng không như thế chứ.
+Cái...
+Có chuyện gì vậy?
+Sao thế, Bub!
+Uầy, gần thật.
+Tí thì chết.
+Tí thì ăn thiên thạch vào mồm.
+Cái quái?!
+Vũ trụ thật điên rồ!
+Êu,
+Bub đái ra quần kìa.
+Ối!
+Toang mịa nệm của tôi rồi!
+
+# Chap 18
+
+Địa chỉ trên danh thiếp của Karellen chắc đâu đó quanh đây thôi.
+Đây rồi.
+Thứ lỗi cho tôi...
+Vâng, tôi có thể giúp gì anh?
+Đây có phải văn phòng tổ chức tình nguyện không?
+
+À ra thế...
+Karellen...
+Đó là một cô gái siêng năng...
+Một trong những tình nguyện viên giỏi nhất của chúng tôi.
+Tôi còn tới đây
+Để gặp người bốn chiều.
+Cám ơn cậu đã lặn lội ghé thăm nơi đây,
+Cơ mà ngài không bao giờ ghé qua văn phòng này đâu.
+Thế á hả...
+
+Tuy vậy, nếu anh làm tốt việc của một tình nguyện viên, nhiều khả năng ngài sẽ triệu tập anh tới.
+Tôi khá chắc đó là cách Karellen gặp ngài.
+Hử?
+Để gặp dược ngài,
+Tôi sẽ chăm chỉ.
+Và thế đấy,
+Giờ ta thành tình nguyện viên rồi đó.
+Nhiệm vụ đầu tiên là xử lý hành tinh phải nói là dễ dàng nhất này.
+Đi thẳng tới đó thôi.
+
+Ừa thì.
+Cấp độ văn hoá của họ có vẻ vẫn thấp.
+Ta phải làm gì bây giờ?
+Ừm...
+Trước hết, ta cần tỉa hết lông mũi của họ.
+Dường như những cá thể có lông mũi dài đều có cấp độ văn hoá thấp.
+Kết luận thế hơi vội vàng đấy nhé.
+Thứ lỗi cho tôi,
+Liệu có thể cho tôi tỉa lông mũi cho các bạn được không?
+Miễn phí đây.
+Văn hoá thấp như các chú khoái hàng miễn phí lắm, phải không?
+
+Kế đến là giầy,
+Thường thì ai không đi giầy là biểu hiện cấp độ văn hoá thấp.
+Trông chúng đẹp đó.
+Cậu nên xem vụ này.
+Có bệnh dịch rồi,
+Vì tỉa lông mũi mà giờ họ dễ mắc bệnh hơn đó.
+Híc!
+Mau làm gì đó bằng máy nano của cậu đi, làm ơn.
+THôi được.
+
+Ta vừa qua thời kì căng thẳng.
+Giờ họ sẽ ổn thôi.
+Hử?
+Gì thế?
+...
+Có bức vẽ đẹp lắm.
+Bên trong hang động đó.
+Họ sống trong hang à?
+Họ
+vẽ thứ này?
+Bản vẽ chất lượng khá cáo.
+Thế thì cấp độ văn hoá của hành tinh cũng cao lắm rồi.
+Mà này,
+Cấp độ văn hoá là gì thế?
+Chịu, biết gì đâu.
+
+# Chap 19
+
+Đó là hành tinh được đánh dấu là sẽ phá huỷ cho dự án cao tốc liên thiên hà...
+Dân cư hiện tại đều đã được tái định cư,
+Nhưng có vẻ cái gã từ hành tinh mẹ bắt đầu sống ở đây.
+Thế ta phải đá đít hắn ra khỏi hành tinh này à?
+Mé, họ bắt tình nguyện làm nhiều việc thế?
+Nhiều rác chưa kìa?
+Cả núi.
+Hắn kia rồi.
+
+Thứ lỗi cho tôi.
+Bọn tôi là tình nguyện viên và chuẩn bị-
+Ôi không,
+Tệ rồi.
+Honyalaa-
+Hanyalaa-
+
+Hử?
+Có chuyện gì vậy?
+Đó là người Migonia.
+Các cậu sẽ bị huỷ hoại tâm trí nếu trúng ánh sáng đó.
+Nhờ đống máy nano mà tôi không bị làm sao đó.
+Với cả, trình phiên dịch của ta không nhận diện được ngôn ngữ Migonia.
+Thế thì khỏi nói chuyện với gã đó luôn.
+Để tôi lo.
+Tôi miễn nhiễm với ánh sáng đó,
+Và còn biết một chút tiếng Migonian nữa.
+
+Có vẻ ông ấy muốn nói chuyện.
+Tuyệt.
+Ông ta chưa tin ta đâu.
+Đừng lao vội thế.
+HaNyaSh-
+Bà ấy bảo mình là một nhà khoa học,
+Và bà ấy đang thử giải những bí ẩn về nền văn minh trong vũ trụ.
+"bà"?
+Vậy là phụ nữ.
+Vẫn còn nhiều thứ ta chưa hiểu rõ về cách các nền văn minh xuất hiện trong vũ trụ.
+Chẳng hạn,
+
+Hai mảnh đất nung này được phát hiện ở hai góc khác xa nhau trong vũ trụ,
+Từ hai vùng đất khác nhau hoàn toàn và từ hai thời kì ít nhiều khác nhau.
+Nhưng chúng giống hệt nhau.
+Vũ trụ này rộng vô cùng tận,
+Và ta vẫn chưa biết làm thế nào mà các nền văn minh cách xa nhau đến thế có thể giống nhau nhường này?
+Ừa thì,
+Chắc người bốn chiều đã làm gì đó ch-
+Á,
+Tôi xin lỗi, tôi không nói gì nữa đâu.
+Các cậu là người quen với người bốn chiều à?
+Bà ấy hỏi.
+Ngài là nhà tuyển dụng,
+Nhưng chúng tôi chẳng biết ngài là ai.
+
+Hừm...
+Gửi tới mọi cư dân
+Enzyme phân rã sẽ được phóng xuống trong vòng 5 phút tới.
+Hựa-
+Mọi cư dân vẫn đang trên hành tinh mau chóng sơ tán ngay.
+Mà này, ở đây nguy hiểm lắm!
+Mau rời khỏi đây thôi!
+Không.
+Mọi thứ cậu thấy đều là nguyên liệu nghiên cứu quý giá của tôi.
+Tôi từ chối để chúng lại.
+4 phút đếm ngược.
+
+# Chap 20
+
+4 phút đếm ngược.
+Bà sẽ chết nếu ở lại đây.
+Nếu phải bỏ đống nguyên liệu quý giá này lại đây,
+Thì ta thà chết còn hơn.
+Bà ấy bảo thế.
+Bộ họ không nhận ra ta vẫn ở đây sao?
+Làm ăn tắc trách thật.
+Đi thôi.
+Họ bắt đầu đếm ngược rồi. Vậy tức là ta chẳng còn việc gì ở đây nữa.
+Ta không thể bỏ rơi bà ấy được.
+
+Thế cậu định gom hết đống sắt vụn này lên tàu à?
+3 phút đếm ngược.
+Còn đống máy nano của cậu thì sao...
+Không, chịu thôi.
+Chúng có phải toàn năng đâu.
+Vả lại,
+Không lẽ tất cả đều quan trọng sao?
+Hử?
+Đó là!
+
+Mô hình siêu hiếm, Futari Wa Precre!
+Lại còn có bộ hỗ trợ chất lượng cao!
+Ngon lành thế hử?
+Đó là một vật phẩn văn hoá cấp quốc gia.
+Tôi chưa từng thấy chúng được bán ỏ Akiba.
+Vả lại, thứ này thuộc thế hệ đầu của Precre.
+Bao gồm Heartpeach precre.
+Yoi Princess Precre,
+Và Hguctto Precre.
+Uầy, cậu sôi nổi thế.
+Bà thấy nó trong đống mảnh vụn của trái đất phải không?
+Không ngờ nó vẫn còn tốt thế này.
+...
+
+Cậu là...
+Người trái đất sao?
+ừa.
+Thật á?!
+Ta vẫn luôn muốn được quan sát một người trái đất còn sống.
+So với cậu, mọi thứ ở đây đều là rác rưởi!
+Ta là Mingo-s.
+Đi nào!
+30 giây đếm ngược.
+
+Thiết bị giải phóng enzyme phân rã.
+Balse-sun.
+
+Phù.
+Tí thì oẳng.
+Tôi giữ lại nó được không?
+Được.
+Không phải thế.
+Precre là một bộ mà kể cả người lớn cũng thích.
+Bộ này nói về tình bạn và tình yêu.
+Có những cảnh biến hình vẽ tay độc đáo và-
+
+# Chap 21
+
+Akka.
+Akka.
+Gì thế Vita?
+Ta phải làm gì bây giờ, nhiều người lạ quá.
+Tớ sợ.
+Kệ họ đi.
+Miễn không chạm vào họ là sẽ ổn thôi.
+Ái chà.
+Hai thanh niên thái độ ghê phết nhờ.
+Bà chui được vào đây sao?
+Bà ta đáng sợ quá!
+Coi bộ
+Hai đứa có thể giao tiếp tinh thần.
+Tốt.
+Ta khoái nói chuyện như này hơn.
+Ta không ngờ đó,
+Theo tầm hiểu biết của ta thì chẳng có dạng sống nào có thể giao tiếp với nhau qua đường này.
+Ơ.
+Hai đứa là lai giữa người trái đất và lãnh chúa sao?
+Tuyệt cú mèo.
+Không ngờ lai tạo như vậy lại sản sinh ra thế hệ tuyệt vời dường này.
+Ta muốn ngắm nghía sâu hơn chút.
+
+...
+Trước đây chúng nó vốn trầm tư,
+Mà từ lúc Mingo-s nhảy vào là im lìm lịm luôn.
+Tôi có ý này.
+Hay ghé qua di tích trái đất nhỉ?
+Chắc cậu sẽ nhớ ra gì đó.
+Và bọn trẻ sẽ được trông thấy thứ từng là quê hương của bố nó.
+Di tích của trái đất ấy hả?
+Ổn đấy.
+
+Vậy đây là những gì còn sót lại của trái đất...
+Các con thấy đó, bố sinh ra và lớn lên ở đây...
+...Chắc hai đứa không thực sự muốn nói gì về nó nhỉ?
+Ước gì trái đất không nằm trong danh sách cấm.
+Ươc gì tôi được thăm nó khi còn là một hành tinh.
+Bà ấy bảo vậy.
+Hử, trái đất bị cấm á?
+Đã từng.
+
+Những vùng đất không được vào theo lệnh của người bốn chiều đều là hành tinh cấm hết.
+Tuy vậy vẫn có vài gã tìm cách chui vô.
+À.
+Di vật kìa!
+Nhặt nó đi.
+Đừng.
+Thứ đó lớn hơn cậu nghĩ đấy.
+...
+Khoan...
+
+Anh thấy sao?
+...Tôi không biết phải nói thế nào?
+Vui nhỉ?
+Tôi đang khoe tượng nữ thần tự do ở odaba cho một khách du lịch người anh.
+Câu đùa của nhật nghe dị thật.
+À mà quanh đây có tượng gundam đúng không?
+Tôi muốn thấy nó!
+Xin lỗi, giờ tôi phải về nhà có việc chút.
+Nên là...
+Hãy gặp nhau tại quán bar này trong một giờ nữa.
+Tôi là khách quen ở đây.
+Được.
+Cảm ơn nhiều nhé.
+Ừa.
+Hẹn gặp anh trong một giờ tới.
+
+# Chap 22
+
+Ư...
+ư...
+hự...
+Chắc mình lại thiếp đi.
+Hm?
+Hử?
+Đây không phải tàu mình.
+Mình đang ở đâu đây?
+
+Mọi gười đâu rồi?
+Êu.
+Tỉnh rồi à?
+Bọn trẻ kêu đói trong lúc cậu ngất,
+Thế là cả bọn tìm đến nhà hàng buffet gần n;hất.
+Được rồi.
+Mọi người đang đi kiếm đồ ăn đấy.
+Được, tôi sẽ đi luôn.
+Chắc mình cũng nên ăn chút gì đó.
+
+Họ có mọi đồ ăn trên toàn vũ trụ này.
+Đây là món từ quê hương của tôi.
+Ựa-
+Cái quái...
+Không, mình không nên nói ra...
+Chính người anh bọn mình hiểu hơn bất cứ ai trong vũ trụ này
+Cảm giác nhói đau khi đồ ăn của quê hương mình bị kích đểu.
+
+Hai đứa đây rồi.
+Anh là giám hộ của bọn nó đúng không?
+Xin lỗi vì chúng tôi không thể nấu được cho chúng.
+...không sao đâu.
+Bọn con ổn rồi.
+Ôi thôi nào?
+Bộ không phải nhà hàng này có mọi món trên vũ trụ sao?
+Nào các con.
+Hãy nói cho đầu bếp biết thứ con muốn ăn đi.
+
+...
+Đồ mẹ nấu.
+Anh ổn chứ?
+Trông anh như bị đạp vào hạ bộ ấy.
+À ừm.
+Cậu nấu được đồ trái đất không?
+Trái đất à?
+Được, tôi có dữ liệu đó.
+Hãy đợi xem,
+Đây là món ăn số một của quê hương bố.
+
+Cậu ấy đây rồi.
+Có vẻ cả đội đều ở đây!
+Cậu có món gì kia?
+Fufu.
+Tôi mang đến cho các cậu
+Đặc sản trái dất,
+Fish and chips!*
+*cá và khoai tây rán
+Để tôi thử.
+Nhàm ghê.
+Con không thích.
+Con không muốn.
+Các người.
+
+# Chap 23
+
+Chào buổi sáng, cô Lummox.
+Có việc tình nguyện nào không?
+Chào buổi sáng Bub.
+Giờ chúng tôi không có việc, nhưng có thứ này cho cậu.
+Đây là-
+Thư mời tới bữa ăn thân mật cùng người bốn chiều.
+Thật mừng cho cậu.
+Cuối cùng ngài cũng đã ghi nhận nỗ lực của cậu.
+Cuối cùng,
+Tôi cũng gặp được ngài.
+
+Nó cho phép
+Mới thêm 3 người nữa.
+Các cậu trông ổn đấy.
+Tông xuyệt tông.
+Đó là điểm hẹn.
+Ngài sống trên một hành tinh chưa được khai phá
+Ở giữa vô tận.
+Giản dị quá.
+
+Hử,
+Trông nó khá giống trái đất.
+Coi kìa.
+Một căn nhà gỗ.
+Có vẻ ngài muốn cách ly khỏi xã hội.
+Không có ai ở đây...
+Chắc ta phải đợi ngài thôi.
+Nơi này thạt dễ chịu.
+Bố thích nó.
+Hồi bố còn bé, bố từng đi trại hè giống thế này.
+
+Có đồ ăn.
+Này này.
+Đừng ăn tuỳ tiện chứ.
+Ngon lắm.
+Chắc phải dạy con cách ứng xử thôi.
+Ừm.
+Ngon phết.
+Bố hiểu rồi.
+Ngài chuẩn bị đống này vì ngài biết bố ở trái đất.
+Ngài thật sâu sắc.
+
+CÒn có cả núi quà luôn.
+Con không được mở chúng.
+Hãy làm một cô gái ngoan ngoãn nhé.
+Chắc đến giờ ngài vẫn bận.
+Các con có thể ngủ ở giường phía trong.
+Chúc ngủ ngon.
+
+Giường mềm nhỉ.
+Ừa.
+Cũng lâu rồi.
+Có gì trong tủ quần áo.
+Ai đó...?
+Mé,
+Rượu ngon dữ.
+
+# Chap 24
+
+Đừng sợ.
+Ta không phải ông kẹ đâu.
+Ta tên là Abettor.
+Mọi người gọi ta là người bốn chiều,
+Nhưng làm ơn hãy gọi ta bằng tên riêng.
+Ta muốn làm bạn...
+Không, gia đình với hai con.
+...
+
+Oái!
+Ahaha, xin lỗi nha.
+Ta sẽ không trêu ghẹo nữa đâu.
+Đây là hình dạng thật của ta.
+Hai con là những sinh vật duy nhất trên toàn vũ trụ này được trông thấy hình dạng thật của ta.
+Nhà ta thế nào?
+Hai con thích chứ?
+Đã mở quà của mình chưa?
+
+Bố bảo bọn cháu không được phép mở.
+Nên vẫn nguyên đó.
+Hắn bảo vậy à?
+Chậc, bố hai đứa dớ dẩn quá.
+Chẳng bao giờ làm giống một người cha gì cả.
+Du hành cùng hắn chắc chán lắm luôn?
+Chiếc giường này phê hơn nhiều...
+So với cái giường đẫm mùi dầu trong phòng động cơ của bố cháu nhỉ?
+...
+Chắc hẳn
+Hai con hơi hoang mang.
+Đợi ta một tí.
+Cảm ơn vì đã dợi.
+
+Đó là nước ép Opitaka. Một loại quả đã tuyệt chủng 3 tỉ năm trước.
+Nó thế nào?
+Ngon alwms.
+Nếu ta trở thành gia đình,
+Các con sẽ có được mọi thứ từ mọi không thời gian.
+Và không chỉ thế,
+Các con sẽ được gặp lại mẹ mình.
+ư...
+Mình hơi quá chén.
+Sáng tỏ cả mắt rồi.
+
+Dậy đi-
+Sáng rồi.
+Bọn trẻ
+Bị bắt cóc sao?
+Người bốn chiều chủ mưu chăng?
+Sao ngài lại làm vậy?
+Mingo-s cũng biến mất
+Liệu đây có phải tình cơ không?
+
+Ông im mẹ nó mồm vào!
+Xin lỗi.
+Bình tĩnh lại rồi.
+Ừa.
+Dù biết người bốn chiều bắt cóc bọn trẻ,
+Biết tìm ông ta ở xó xỉnh nào bây giờ?
+Chết tiệt, đáng ra ta phải lắp camera cho bọn trẻ.
+Camera...
+Cô Lummox!
+Cho tôi dùng tử cung của cô!
+Híc!
+
+# Chap 25
+
+Akka và vita
+Bị bắt cóc...?
+Để tìm chúng,
+tôi cần cô giúp.
+nếu tôi không nhầm, người starbea có thể dùng tử cung như một lỗ sâu giả*
+*pseudo wormhole
+nó có thể đọc tâm trí và nhìn thấy bất cứ đâu trên vũ trụ, phải không?
+Ừa...
+tôi tin ta có thể tìm chúng
+nếu cô đọc tôi.
+ừm,
+thực lòng tôi rất muốn giúp cậu,
+
+cơ mà tôi vẫn còn trinh...
+ái chà.
+mệt rồi đây.
+...tôi hiểu.
+tôi sẽ nhận trách nhiệm.
+à, ừm...
+thế thì...
+tôi cần ngừng này.
+cô cần tiền á?
+
+bên trong thế nào?
+tôi chả tháy gì cả.
+trong đó chắc phải có công tắc đèn chứ.
+mé, của cô ấy khít quá.
+đúng là còn trinh có khác.
+phải cái này không ta?
+
+thôi nào, thư giãn đi.
+akka, vita.
+hãy tưởng tượng chúng trong tâm trí cậu.
+akka.
+vita.
+
+...
+...mẹ.
+là mẹ đấy.
+thứ lỗi cho ta, nhưng con không qua đó được đâu.
+con chỉ có thể nhìn qua hố không thời gian thôi.
+chỉ mình ta, người bốn chiều mới đi qua được đó.
+
+đừng nghĩ là đùa, cái hố này cũng khó tạo ra lắm...
+các con không thấy quá khứ đâu.
+mẹ các con đang ở dạng thật nhất vào thời điểm hiện tại.
+mẹ...
+tốt, các con làm tốt lắm.
+nhớ cảm ơn ta nhá?
+hử? ồ.
+bảo tàng người bốn chiều à?
+ta ghét chỗ đó.
+chúng sử dụng thương hiệu ta mà không xin tác quyền!
+ta thề, ta sẽ kiện chúng!
+
+# Chap 26
+
+đã thấy cặp song sinh chưa?
+vẫn chưa.
+nhưng có một điều chắc chắn.
+người bốn chiều không thể đưa chúng xuyên thời gian được.
+nói cách khác, chúng đang ở một nơi nào đó trong vũ trụ này.
+cùng khung thời gian với chúng ta.
+chà?
+xem chán chưa?
+
+nhân tiện, ta muốn các con giúp ta chút.
+ta muốn giải một phương trình nho nhỏ thôi.
+phương trình?
+ừa, đại số.
+các con giỏi nó lắm phải không?
+Ờ ừa thì.
+không!
+tôi ghét đại số!
+ông là người bốn chiều cơ mà, tự đi mà giải đi!
+sao lại cần nhờ bọn này?
+với cả cái hố này!
+không phải là "gặp mẹ"!
+bọn tôi muốn gặp mẹ!
+mẹ cơ!
+
+hừm-
+gừa-
+được thôi! cứ thế đi!
+ta sẽ chuyển kênh!
+nào! xem thằng cha các con đi!
+các con sẽ được thấy mái tóc úp bô ngớ ngẩn và đôi mắt trống rỗng ngu si của hắn,
+cứ liếc thoải mái lên tường đê!
+đúng ý hai đứa nhé!
+sao lại sổ toẹt ra như thế
+thằng khốn này-
+
+ta đi dạo chút đã,
+và ta sẽ không quay lại cho tới khi hai đứa hối lỗi.
+thôi nào, akka.
+chỉ là chút đại số thôi mà, ta có thể giải được.
+ta không thể nhìn mẹ thế này.
+ta không cần nghe lời ông ta.
+ông ta quá mờ ám và-
+akka... vita...
+
+akka!
+vita!
+bố.
+chính xác.
+đúng là thế.
+các cháu đừng nghe lời ông ta.
+mingo-s.
+từ khi nào?
+ta muốn coi người bốn chiều thế nào nên đã lén theo đuôi.
+nhưng thôi nào, kẻ xấu trong phim hoạt hình còn chẳng lộ liễu như ông ta!
+các cháu không thể nghe lệnh một kẻ như thế được!
+
+chà?
+giờ các cháu muốn gì?
+bố lo cho bọn chúa.
+nên bọn cháu muốn quay về.
+được rồi,
+trước hết,
+ta đi thám thính xem chúng ta đang ở đâu đã.
+bừa bộn ghê.
+hử?
+đây chẳng phải...
+Precre?
+
+# Chap 27
+
+a,
+ông ta quay lại kìa.
+ây dà,
+xin lỗi vì hét vào mặt hai con
+ta nóng nảy quá.
+có chuyện này,
+ta muốn giãi bày với hai đứa
+
+đó là trái đất.
+hành tinh quê hương của bố các con đúng không?
+ở thế kỉ 26,
+người trái đất phát minh ra động cơ bức xạ ánh sáng.
+với nó, họ mau chóng khám phá hết toàn bộ vũ trụ.
+qua quá trình đó, họ nhận ra
+rằng chỉ có mình trái đất có sinh vật dạng người*.
+*homo sapiens
+
+ngay khi loài người nhận ra sự cô độc của mình
+cũng chính là lúc xã hội ngừng phát triển.
+tỉ lệ sinh kèm dân số trượt không phanh.
+dần dần chỉ còn một người duy nhất còn sót lại.
+giờ là câu hỏi này.
+người cuối cùng sẽ làm gì?
+tự tử?
+khá gần, nhưng chưa đúng.
+anh ta đã định tự tử,
+nhưng không thành.
+bản năng duy trì nòi giống đã ngăn cản anh ta.
+trên hết, anh ta không phải con người duy nhất trên trái đất mà trong toàn vũ trụ.
+chính vũ trụ đã thôi thúc anh ta sống tiếp,
+và thế là-
+
+người đàn ông đó trở thành bốn chiều.
+đúng thế.
+chính là ta.
+ta, giờ thành người bốn chiều,
+bắt đầu hỗ trợ sự phát triển của các nền văn minh trên toàn vũ trụ.
+đơn giản lắm.
+ta quay lại thời vũ trụ mới giãn nở,
+và tạo ra dạng sống từ vài đoạn adn của mình và đưa chúng tới hành tinh ngẫu nhiên.
+kế tiếp, ta nhảy tới 1 tỉ năm sau.
+nếu may mắn, chúng sẽ có dạng người.
+nếu không, ta sẽ làm lại từ đầu.
+
+và thế là ta tạo dựng lại toàn bộ vũ trụ.
+việc đó khiến ta tốn mất khá là lâu,
+nhưng người trái đất vẫn cô độc,
+nên ta đã lấp đầy vũ trụ với 10.000 dạng sống dạng người cho chúng.
+...
+tuyệt vời.
+ông đúng là chúa.
+ừa ha?
+đúng, ta đã từng tuyệt vời như vậy,
+nhưng gần đây thì hơi chán,
+thế này nhé, đây giống như ta đang chơi minecraft một mình vậy.
+sự sáng tạo bắt đầu trở nên vô nghĩa khi mọi thứ đều do mình ta tạo ra.
+ta muốn thấy một thế giới khác.
+
+ta muốn thấy các vũ trụ khác.
+đúng thế, ta đang nói tới thuyết đa vũ trụ, vũ trụ hiện tại chỉ nằm trong chúng thôi.
+tuy nhiên, ta chỉ là một sinh vật bốn chiều.
+nếu không phải năm chiều, ta sẽ không đi xuyên qua đa vũ trụ được.
+đời là bể khổ,
+đó là lý do ta cần các con giúp
+làm ơn giải phương trình này cho ta với?
+nếu được, ta sẽ nhảy được qua các vũ trụ khác.
+...
+biết làm sao giờ?
+...ừa,
+giúp chút cũng không sao.
+
+# Chap 28
+
+thứ đó chắc chắn thuộc về Precre.
+cô ấy là nhân vật hoạt hình chỉ xuất hiện trên phim.
+đống đồ đi kèm siêu hiếm luôn.
+người hâm mộ buồn cực kì khi không có phim truyền hình đó.
+hử.
+thế cậu tìm thấy bọn trẻ chưa?
+vẫn chưa...
+giờ còn chỗ nào trong vũ trụ có Precre nhỉ?
+mặt trăng thì sao?
+nếu tôi không nhầm thì mặt trăng của trái đất vẫn còn lơ lửng đâu đó.
+
+à, tôi xin lỗi.
+tôi có lỡ mồm nói gì đó không phải...
+à đúng rồi, mặt trăng.
+sẽ chẳng lạ gì khi đồ trên trái đất lăn vào mặt trăng cả.
+vấn đề là,
+sẽ tốn thời gian để ta tới đó đấy.
+quanh đây chả có lỗ giun nào dẫn thẳng tới di tích trái đất cả.
+...chắc ta sẽ phải
+liều thôi.
+
+thật vĩ đại.
+chẳng tốn chút đỉnh gì để hai con giải phương trình đó cả.
+đúng là không sai khi đặt niềm tin vào hai đứa.
+thậm chí siêu máy tính đỉnh nhất vũ trụ vào thời điểm đó
+cũng không giải được nó.
+thiên tài chưa đủ để mô tả hai đứa.
+cặp song sinh các con có thể vừa ngoại cảm vừa hoạt động song song, tiết kiệm của ta bao nhiêu thời gian,
+hai đứa đúng là tuyệt đỉnh!
+...
+ehehe.
+
+hành tinh này toàn sòng bạc thôi,
+và cậu có thể dễ thấy vài cái bất hợp pháp trong hẻm.
+chỉ thành viên mới được vào.
+biến đi.
+ơ?
+người anh em,
+đã lâu rồi.
+mời vào.
+cám ơn.
+cậu có quan hệ với thế giới ngầm à bub...?
+
+ngoài dịch vụ bình thường, các băng đảng mafia còn sở hữu lỗ giun bất hợp pháp nữa.
+có lỗ giun tới trái đất không?
+mời vào phòng này.
+
+giờ phải đánh cược này.
+chỉ có một lỗ tới trái đất.
+hai lỗ còn lại dẫn tới khu khai mỏ.
+nếu chọn nhầm, cậu sẽ bị ép lao động trong nguyên một năm.
+lại nữa sao?
+chắc ta phải liều thôi.
+hãy chọn các lỗ khác nhau.
+ai may mắn thì gánh trách nhiệm thôi.
+được.
+làm thôi.
+hãy đợi ở đây nhé, cô lummox.
+hãy cẩn trọng.
+
+# Chap 29
+
+đây phải
+mặt trăng không?
+tohoho-
+của mình là chuẩn luôn à?
+phải làm hộ họ thôi.
+Này!
+Hai đứa có đó không?
+tuy không phải hành tinh cơ mà trái đất cũng lớn quá.
+liệu mình có tìm ra chúng không đây...?
+
+a.
+là đống đồ ở trái đất này?
+trúng số rồi.
+gì đây ta?
+cửa sổ tàu nhỉ?
+tuyệt vời.
+trúng số rồi.
+
+mingo-s?
+sao bà lại ở đây?
+tôi đang nghiên cứu học thuật.
+chết tiệt, tôi chả hiểu bà đang nói gì nếu không có junk.
+biết bọn trẻ ở đâu không?
+thôi xong, quên béng mất.
+ấy,
+đợi đã.
+
+xong.
+ồ!
+tuyệt vời!
+giờ ta có thể tới vũ trụ khác rồi!
+cuối cùng ta cũng thành người 5 chiều.
+chúc mừng.
+chúc may mắn ở thế giới khác.
+cám ơn.
+cơ mà trước khi lên đường,
+có một thứ cuối cùng ta cần làm.
+
+không!
+ngăn ông ta lại!
+tớ có cảm giác xấu về chuyện này.
+ông định làm gì thế?
+mé, hai con tinh ranh ghê.
+chắc thừa hưởng từ mẹ à?
+đừng để ông ta đi, vita.
+ừa.
+chậc-
+
+sao hai con theo ta được?
+đúng ra chỉ mình ta đi xuyên qua đây thôi chứ!
+chết tiệt.
+vẫn không chịu buông à?
+thôi được, ta sẽ cho hai con xem
+giờ đi cùng ta nào.
+odaiba, trái đất.
+
+# Chap 30
+
+ồ-
+nó lớn quá.
+coi kìa.
+trông thật kĩ cái thằng dớ dẩn đang nhòm tượng gundam ở odaiba đi.
+đó là bố.
+là bố trước khi mình được sih ra.
+đến giờ rồi.
+phải qua điểm hẹn thôi.
+
+vài phút tiếp theo kể từ giờ,
+trái đất sẽ kết thúc.
+quá khứ của ta cùng balse-sun sắp tới đây.
+ta đã lên kế hoạch từ đầu,
+ta cần một cỗ máy tính toán thần sầu.
+ta đã tìm kiếm khắp vũ trụ,
+tạo ra nhiều bản mô phỏng cho nó.
+qua nỗ lực, ta phát hiện rằng một lai tạo giữa con người và lãnh chúa sẽ ra được đúng thứ ta muốn.
+nói cách khác, ta cần bố và mẹ của hai con giao hợp.
+nên ta đã làm cupid*
+*thần tình yêu
+bén duyên cho mối tình cách nhau cả vạn năm ánh sáng này.
+
+ta đã phá huỷ trái đất vì khả năng để hai chủng đó giao hợp với nhau quá thấp.
+ta khai thác luôn bản năng duy trì nòi giống của con người.
+nếu ta không phá huỷ trái đất thì không có hai con đâu.
+ồ,
+nhắc phát thấy ngay.
+ra khỏi đây trước khi nó kích hoạt nào.
+này.
+cái quái gì thế?
+
+cái gì vậy...?
+Êu,
+anh kia.
+lại đây.
+chui vào cái kén này ngay.
+oái!
+người ngoài hành tinh!
+thế kia hẳn là tàu vũ trụ nhỉ?
+ựa, tha cho ta đi.
+ta chả quan tâm đâu.
+chui vào ngay.
+hình như hơi mạnh!
+chắc sẽ ổn thôi.
+henyala-
+
+đặt hi vọng vào cậu cả.
+cố lên nhé?
+thuộc địa khai phá kooyaaya
+hộc-
+không biết hopper thế nào?
+phải tin cậu ta thôi.
+
+phù.
+bub này...
+cậu...
+hử?
+cái gì?
+trông cậu giống hệt người bốn chiều ấy...
+cậu đang nói gì vậy?
+coi này.
+oái!
+tệ quá!
+khuôn mặt đáng yêu của tôi!
+Biến mất rồi!
+
+# Chap 31
+
+ta đang ở đâu vậy?
+điểm bắt đầu của vạn vật,
+vũ trụ sơ khai.
+trong 30.000 năm nữa, các đám mây khí này sẽ phân rã và tạo ra ngôi sao đầu tiên.
+sẽ mất chừng 5 tỉ năm nữa để hình thành hệ mặt trời.
+
+Sự sống bén rễ ở hành tinh thứ ba và thăng hoa.
+Tuy nhiên, thế là hết.
+Đó sẽ là sự sống duy nhất mà vũ trụ này ban tặng trong 160 tỷ năm tồn tại.
+Sau cùng,
+loài người không khác gì đống rác rưởi may mắn trong vũ trụ.
+thế giới này chẳng cho gì
+ngoài sự cô đơn.
+...
+đó là lý do,
+trước khi vĩnh biệt thế giới điêu tàn này,
+ta sẽ làm lại mọi thứ!
+
+chịu thôi.
+không còn gì nữa rồi.
+thứ lỗi cho tôi, bub.
+không hẳn đâu.
+c-cái gì?
+thế quái nào các cậu!
+tôi cũng chả rõ,
+nhưng có vẻ bub đã bẻ cong không thời gian.
+
+hmm,
+vậy có chuyện gì,
+bà biết gì không?
+người bốn chiều đang chuẩn bị thoát khỏi vũ trụ này.
+tôi nghĩ ông ta đã chọn cậu làm người kế nhiệm.
+thật sao, không đời nào?
+ý chí vũ trụ là tuyệt đối.
+cậu hiểu mingo-s.
+vậy giờ cậu là người bốn chiều rồi.
+chắc cậu nên biết cặp song sinh đang ở chốn nào chứ?
+tôi sẽ thử.
+chắc ở quanh đây.
+
+ái! đau quá!
+cút ra mau ranh con!
+đây là vũ trụ c;ủa ta
+ta có quyền định đoạt với nó!
+
+akka! vita!
+các con an toàn rồi!
+mugiuu-
+mingo-s!
+huỷ hoại tâm trí ông ta ngay!
+còn lâu nhá...!
+
+# Chap 32
+
+mingo-s!
+cố lên nào!
+...
+tôi nhớ rồi.
+ngay trước khi trái đất bị huỷ diệt,
+tôi cũng bị tia sét đó dánh vào.
+cả cô ấy nữa...
+karellen cũng bị tia sét đó tiêu diệt.
+...karellen
+
+quá tinh ranh, nên ta đã tiêu diệt trước khi cô ta phát hiện ra kế hoạch của ta.
+vả lại...
+ta đã cố kéo bọn trẻ có thằng bố ngu dốt về phe mình.
+gì cơ!?
+tôi sẽ đập vỡ mồm ông ra.
+bố không phải người xấu.
+du hành cùng bố vui lắm.
+chúng ta đã được đi tới vô vàn thế giới và đủ các thứ.
+bọn con thực sự nhớ phòng động cơ,
+và cái giường cứng đẫm mùi dầu.
+các con...
+
+mingo-s ổn rồi.
+cảm ơn chúa.
+cái của khỉ này tính sao đây?
+trí tuệ bị huỷ hoại hoàn toàn.
+giờ chỉ còn cái xác không.
+vứt ông ta trước bảo tàng thôi.
+
+úi, thật đáng thương.
+nhận lấy đi.
+mong người bốn chiều sẽ luôn bên nhóc.
+quan trọng hơn cả,
+bố mừng vì các con không bị thương.
+giờ bố là người bốn chiều sao?
+ừa.
+
+bọn con cũng thế.
+ừm, bà muốn giải thích không?
+chúng có một nửa dòng máu con người mà.
+liệu bọn con có thể cứu mẹ bằng sức mạnh này không?
+bố không biết,
+cơ mà chắc phải có ai đó tạo ra con người trước.
+người đó hẳn là chúa.
+nếu vậy thì chỉ có chúa mới đủ quyền năng để làm chuyện đó.
+...dạ.
+bọn con hiểu rồi.
+dù vậy,
+cậu vẫn có thể khôi phục trái đất đó.
+
+khối balse-sun dùng để phân rã trái đất đang ở mặt trăng này.
+balse-sun lưu trữ trạng thái của vật nó phân rã theo dạng dữ liệu.
+dùng bộ dữ liệu đó, cậu có thể khôi phục lại thời điểm trước khi trái đất bị phân rã.
+chúng ta làm được điều đó sao?
+bằng trí tuệ của ta.
+và sự hỗ trợ của bọn trẻ, chắc chắn.
+trái đất
+
+tôi không ngờ
+chiếc áo phông này vẫn còn.
+tôi tìm thấy nó trong góc phòng động cơ.
+cảm ơn vì đã đưa nó tới tận đây.
+giờ các cậu định làm gì?
+chắc bọn tôi sẽ ở lại trái đất một thời gian.
+được rồi.
+tôi đi có việc một chút.
+bố.
+có phải người bố muốn gặp
+là mẹ mới?
+mẹ kế của bọn con?
+không, không!
+bố vẫn nợ cô ấy,
+...chà, bố cũng không biết sẽ thế nào nữa.
+
+nghe chưa?
+cậu thấy sao?
+muốn kiểm tra tương lai không?
+nào nào!
+chào.
+xin lỗi vì tôi tới trễ.
+thôi vào luôn đi.
+tôi là khách quen ở đây.
+hmm,
+đúng là một nơi tuyệt vời.
+
+mất bao nhiêu năm ánh sáng để tới babylon? kết thúc
+
+# Chap 32.5
+
+Mẹ! Mẹ!
+Con muốn làm idol!
+Idol là gì?
+
+Idol ấy hả?
+Mẹ từng là một fan cứng của Idol.
+Seko-chan
+No-chan
+Mẹ sẽ làm trang phục cho con.
+Tuyệt, con yêu mẹ!
+Còn con thì sao, Vita?
+Con muốn làm gì?
+Con muốn biến thành quái vật khổng lồ,
+Bắn tia laze từ mồm.
+Thế thì sẽ hơi lâu đấy.
+Hết
