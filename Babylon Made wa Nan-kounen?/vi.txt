@@ -352,8 +352,8 @@ Bọn mày được tha.
 Tôi kiếm đủ để trả họ rồi, ta đi thôi.
 Cậu kiếm được 5 triệu rồi á?
 Thật sao?
-Quay lại lúc nào cũng dược.
-Bọn anh sẽ đợi.
+quay lại lúc nào cũng dược.
+bọn anh sẽ đợi.
 Chà, họ yêu cậu luôn.
 
 Oải thật đấy.
@@ -769,6 +769,7 @@ Không ai biết chính xác giới tính của ngài và nghe nói bạn có th
 Nhiều phết đấy chứ, tôi có một đống ngón tay này.
 Kế đến là những vật dụng cá nhân của ngài.
 Đây là chiếc bàn chải mà người ta tin rằng người bốn chiều đã dùng.
+
 Đây là mảnh giấy vệ sinh mà người ta tin rằng đã lau đít người ngài.
 Bộ không có gì đặc biệt sao?
 Nhàm quá.
@@ -833,7 +834,7 @@ Kevin Bacon!
 Hử?
 Sao cơ?
 
-# Chap 4
+# Chap 14
 
 Em từng kể rằng em là tình nguyện viên, đúng không?
 Chà, tổ chức của em được tài trợ bởi người bốn chiều.
@@ -873,8 +874,8 @@ Kể từ giờ anh sẽ cố hết sức.
 Trước hết,
 Anh sẽ khiến chúng rộng lòng.
 
-Cái...
-...Không.
+cái...
+...không.
 
 Karellen?!
 aah... tại sao...?
@@ -1301,6 +1302,7 @@ Kệ họ đi.
 Miễn không chạm vào họ là sẽ ổn thôi.
 Ái chà.
 Hai thanh niên thái độ ghê phết nhờ.
+
 Bà chui được vào đây sao?
 Bà ta đáng sợ quá!
 Coi bộ
